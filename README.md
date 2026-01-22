@@ -1,0 +1,2 @@
+# Wan_Animate_Runpod_V2
+Wan_Animate_Runpod_V2
